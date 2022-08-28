@@ -1,1 +1,1 @@
-## IBX Organization for Teaching and Mentoring Projects
+## IBX Organization for Teaching Students and Mentoring Projects
